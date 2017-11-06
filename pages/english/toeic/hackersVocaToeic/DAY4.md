@@ -130,11 +130,3 @@ He voluntarily took on the arduous task to gain experience.
 
 43. widely  
 a widely admired business leader.  
-
-
-
-fhfghfghfg
-
-
-
-5.
