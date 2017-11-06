@@ -1,6 +1,8 @@
 # DAY4
 1. accomplish
+
 성취하다
+
 Careful planning is essential for accomplishing goals.
 세심한 계획은 목표를 성취하는데 필수적이다.
 
