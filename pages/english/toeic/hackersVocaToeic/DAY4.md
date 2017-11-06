@@ -47,7 +47,7 @@ Out Beijing office has established a creditable reputation in China.
 15. direct  
 The receptionist directs customers to the product display area.  
 
-16.disturbing  
+16. disturbing  
 Listening to loud music in the office could be disturbing to coworkers.  
 
 17. draw on  
